@@ -1,2 +1,2 @@
 # learning-python
-sah dood its python
+suckle on my ducks
